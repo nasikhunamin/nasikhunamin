@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 🚀 A professional in the field of **Mobile Developer** with 5 years of experience in the software development industry. Skilled in both native and cross-platforms development, with a proven track record of managing projects end-to-end. Known as a detail-oriented and communicative individual who excels under pressure and thrives in cross-functional team environments. 
 
-📌 Please visit my [portofolio](https://nasikhunamin.com)
+📌 Please [visit my amazing art space!](https://nasikhunamin.com)
 
 📫 Let’s collaborate on meaningful, challenging projects!
 
